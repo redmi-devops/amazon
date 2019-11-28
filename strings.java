@@ -12,3 +12,21 @@ I had many sleepless nights, fearing this film might never hit the big screens.
 It took a toll on me both mentally and physically," he said.
 
 Nikhil said Chiranjeevi came out in support of the film when the movie unit needed it the most.
+  
+  jkjdsv
+  mskldvjs
+  jkjkdsv
+  ;lsdjvjdv'sd
+    jm;sjv;jv'sa
+      jsdvjsdpjfvs
+      
+      ksdfvksdkfsd
+      s;djvsjdkvsd
+      KSDJVJSDJVFSD
+      PKSDJFKSD[KFV[DS
+      JSDFJKV[SDF
+      jksdkfsd
+      f
+      kfksd'fl
+              sdf
+              \kfds[lof
