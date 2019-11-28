@@ -12,3 +12,14 @@ We portrayed the severity of the issue and also gave a fitting solution to it," 
 
 'Arjun Suravaram' is based on real incidents.
 The lead pair, Nikhil and Lavanya will be seen as journalists in the film. TN Santhosh directed it
+
+Every day discovering something brand new
+I'm in love with your body
+Oh—I—oh—I—oh—I—oh—I
+I'm in love with your body
+Oh—I—oh—I—oh—I—oh—I
+I'm in love with your body
+Oh—I—oh—I—oh—I—oh—I
+I'm in love with your body
+Every day discovering something brand new
+I'm in love with the shape of you
